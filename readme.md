@@ -1,3 +1,0 @@
-# Lauras Studentenorganisation 
-
-## derzeit Nina
